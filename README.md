@@ -19,7 +19,7 @@
 - 👀 intp
 - 🌱 enjoy explroing anything new
 - 💞️learning, exercising, travelling...alllll for better!
-<To be continue....
+<To be continued....
 
 
 ### 🛠️ Tech Stack
