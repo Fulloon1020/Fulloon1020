@@ -15,7 +15,7 @@
 
 ### 
 
-- 👋 Hi you, I’m @Fulloon1020
+- 👋 Hi you, I’m @cc00mi
 - 👀 intp
 - 🌱 enjoy explroing anything new
 - 💞️learning, exercising, travelling...alllll for better!
